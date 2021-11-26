@@ -9,4 +9,5 @@ burhansalkin06/burhansalkin06 is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 selam
-sizinle işbirlikçisi olmak istiyorum benimle çalışır mısınız?
+sizinle işbirlikçisi olmak istiyorum kabul eder misiniz  gmail burhansalkin979@gmailden ınstegram hesabımı isteye bilirsin.
+
